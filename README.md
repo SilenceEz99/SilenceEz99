@@ -1,5 +1,5 @@
 - 🧨 ***Olá sou Sabryna.***
-- 🎈 ***Estou interessada em aprender japonês, codigo morse, gastronomia e biologia marinha (inglês eu já sou bem boa mas pretendo aprender mais também.)***
+- 🎈 ***Estou interessada em aprender japonês, codigo morse, gastronomia e biologia marinha (inglês sou bem boa mas pretendo aprender mais também.)***
 - 💕 ***Eu gosto muito de jogar, desenhar, assistir/maratonar series e cozinhar.***
 - 🍷  ***Não tenho sorte na vida amorosa.***
 - 💖 ***Sou bem amigável com todos.***
